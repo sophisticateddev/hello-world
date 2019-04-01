@@ -1,2 +1,2 @@
 # hello-world
-just another repository
+I am a bigner i wish to learn more and improve myself
